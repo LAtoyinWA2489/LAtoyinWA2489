@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LAtoyinWA2489
-- 👀 I’m interested in pussles, reading romance novels, SPN, and TikTok 
+- 👀 I’m interested in puzzles, reading romance novels, SPN, and TikTok 
 - 🌱 I’m currently learning how to code JavaScript, and refreshing HTML and CSS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
